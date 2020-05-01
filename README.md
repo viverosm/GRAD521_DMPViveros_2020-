@@ -1,1 +1,1 @@
-This is a repository 
+This is a repository for my research which will examine perceptions of gender and masculinity in self-identified male students enrolled in Multicultural Education (ED 219) at Oregon State University. 
